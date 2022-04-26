@@ -9,6 +9,6 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: [Facebook]{https://www.facebook.com/profile.php?id=100002598041100}
 - 😄 Pronouns: Her/She
-- Work experience: internship with Cascoda
-- ⚡ Fun fact: I love cooking
+- ⚡ Fun fact: ... 
+- - Work experience: internship with Cascoda
 
