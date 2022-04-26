@@ -10,5 +10,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: [Facebook]{https://www.facebook.com/profile.php?id=100002598041100}
 - 😄 Pronouns: Her/She
 - ⚡ Fun fact: ... 
-- - Work experience: internship with Cascoda
+- Work experience: internship with Cascoda
 
